@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KristoferFrog
-- 👀 I’m interested in technology, music and criminology
+- 👀 I’m interested in 
 - 🌱 I’m currently learning everything beacuse studying never ends in this job
 - 💞️ I’m looking to collaborate on some quality of life application
 - 📫 How to reach me: Discord, Email is fastes way
